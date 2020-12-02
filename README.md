@@ -19,9 +19,5 @@
 
 ![6](https://user-images.githubusercontent.com/42799799/98146488-99219a80-1ef1-11eb-9128-72d2f6f25d1d.png)
 
-[
-![1 ceb](https://user-images.githubusercontent.com/42799799/100830453-b82c3180-3489-11eb-904a-9e5f55a9ab5a.png)
-](url)
-
 ![2 ceb](https://user-images.githubusercontent.com/42799799/100830654-27098a80-348a-11eb-87b2-ce5e825778ba.png)
 
